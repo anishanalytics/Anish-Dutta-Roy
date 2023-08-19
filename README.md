@@ -1,4 +1,5 @@
 Hello I'm Anish Dutta Roy
+
 Passionate about turning data into insights and driving informed decisions.Currently a Supply Chain Analyst with a keen eye for optimising processes and uncovering trends. Eager to transition into a Data Analyst role to explore the world of data-driven strategies and contribute to business growth.
 
 🔗 Connect and Collaborate:
