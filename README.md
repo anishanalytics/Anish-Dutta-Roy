@@ -15,6 +15,6 @@ Feel free to explore my projects, provide feedback, or reach out for collaborati
 
 Feel Free to Connect :
  * Enthusiastic about Data Analyst.
- * Open to Collaborate on Data Analytics Projets
+ * Open to Collaborate on Data Analytics Projects
  * Email - anishduttaroy15@gmail.com
  * Connect Over Linkedin Profile :https://www.linkedin.com/in/anish-dutta-roy-0508b470/
